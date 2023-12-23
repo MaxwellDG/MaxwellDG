@@ -1,1 +1,2 @@
-![360_F_96383606_Q7kfpVDmJFLVjUdKn0EAKzR1owxd9RSQ](https://github.com/MaxwellDG/MaxwellDG/assets/51105802/58531b42-b554-4fea-a783-bd933243cf2a)
+
+![AdobeStock_261351456](https://github.com/MaxwellDG/MaxwellDG/assets/51105802/5d7f67bb-0322-4a16-b820-07e2462d6851)
