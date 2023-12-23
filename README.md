@@ -1,1 +1,1 @@
-![flip-flip (1)](https://github.com/MaxwellDG/MaxwellDG/assets/51105802/6563d9c9-52dd-4a35-bb6b-ec343d836855)
+![flip-flip (2)](https://github.com/MaxwellDG/MaxwellDG/assets/51105802/2bbd29d2-095d-4937-ac30-843960ae2555)
